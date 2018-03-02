@@ -1,4 +1,2 @@
 # hello-word
-Sou uma boa pessoa e irei mudar de emprego ^^
-trabahar e jogar 
-viajar
+Sou uma boa pessoa quero me tornar um ótimo profissional.
